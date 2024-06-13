@@ -1,1 +1,1 @@
-# formas-proibidas
+# aventureiros-da-formula-proibida
